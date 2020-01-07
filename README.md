@@ -10,6 +10,4 @@ Not too sure what I'm doing
 
 I think I'm getting there FINALLY
 
-FINAL after FINALLY
-
-and FINAL b4 FINAL
+THE END
